@@ -1,2 +1,2 @@
 # Tautan Video
-https://www.youtube.com/watch?v=wOhfSTa5gpE
+https://youtu.be/aLFWYtNGM_Q
